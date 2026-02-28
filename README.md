@@ -51,7 +51,7 @@ Performance Optimization
 
 ## 🎯 Focus
 
-Helping businesses across India build long-term search visibility through ethical, scalable SEO strategies.
+Helping businesses in India and worldwide achieve sustainable search dominance through ethical, scalable technical SEO.
 
 ---
 
