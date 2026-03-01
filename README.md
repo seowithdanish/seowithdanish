@@ -4,7 +4,7 @@
 
 I help businesses achieve sustainable organic growth through complete SEO execution — from deep keyword research and search intent mapping to crawl optimization, structured data implementation, and performance engineering.
 
-Unlike tool-dependent SEO approaches, I work at both the strategic and implementation level — ensuring that rankings are built on technical precision, scalable architecture, and long-term search visibility.
+I work at both the strategic and implementation level, ensuring that rankings are built on technical precision, scalable architecture, and long-term search visibility.
 
 ---
 
